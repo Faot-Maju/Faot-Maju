@@ -8,5 +8,5 @@ Meu nome is Maria Julia Faot mais conhecida como Majuzinha gameplay🎮
 - I love a Tessari 🦋🫀
 
 
+![gif](https://github.com/user-attachments/assets/dd3f8656-3892-40b4-abed-7acfb36b653b)
 
-![](https://tenor.com/pt-BR/view/elmo-byu-football-byu-elmo-fire-elmo-stretch-y-gif-17468532)
